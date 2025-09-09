@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **eren.tetik000@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1VQ-wIhhSn7sImLIZvZkAFnkfpg-9ggkS/view?usp=drive_link](https://drive.google.com/file/d/1VQ-wIhhSn7sImLIZvZkAFnkfpg-9ggkS/view?usp=drive_link)
+- 📄 Know about my experiences [ErenTETİK-CV](https://github.com/erentetk/erentetk/blob/main/CV_ingilizce_Eren_Tetik.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
